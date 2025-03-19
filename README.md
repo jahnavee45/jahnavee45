@@ -1,4 +1,4 @@
-## ***$${\color{blue}Hi there 👋, I'm Jahnavee Roy}$$***
+## ***$${\color{blue}Hi \space there \space 👋, \space I'm \space Jahnavee \space Roy}$$***
 > Scroll down to know more
 
 ### About me
